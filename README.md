@@ -1,1 +1,1 @@
-# Investigating_the_Influence_of_ICT_Sector_Expansion_on_Career_Choices_among_Young_Armenians
+Investigating the Influence of ICT Sector Expansion on Career Choices among Young Armenians
